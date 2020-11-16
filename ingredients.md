@@ -1,0 +1,1 @@
+chicken,gost peper,red chilly,egg,boiling water,green pea and ramen
